@@ -1,6 +1,7 @@
 # 💫 About Me:
 
-![PQ63fOcbhibZ2tVwSVgcw5c5uGvBayYk](https://github.com/user-attachments/assets/edf52c61-2ba7-4471-b170-0938b470d26b)
+![space-stars-black-hole-uhdpaper com-4K-4 758-wp thumbnail](https://github.com/user-attachments/assets/514038cd-138a-4d3c-aad1-b873f80d61e6)
+
 
 
 I'm currently working on Python.
